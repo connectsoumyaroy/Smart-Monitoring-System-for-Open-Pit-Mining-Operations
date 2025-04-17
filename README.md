@@ -1,0 +1,1 @@
+# Smart-Monitoring-System-for-Open-Pit-Mining-Operations
